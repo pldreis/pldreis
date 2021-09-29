@@ -1,4 +1,4 @@
-# Oii! Eu sou a Paloma 🤍👋
+# Eu sou a Paloma 🤍👋
 
 - 😉🔴 Pronomes: Ela/Dela
 - 💻🟡 Trabalho como Analista de Sistemas
